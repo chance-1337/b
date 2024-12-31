@@ -1,19 +1,19 @@
-hi
+HI HELLO HAI
 
-name's michael/mike, though preferably call me by the character my pony is.
+IM LOVESICK OR MICHAEL.
 
-im not the most social person ever. i might be awkward if im not the one interacting first </3 though i accept crowns n stuff
+#1 LOSER AND SOCIAL AWKWARD. 
 
-i type like shit when with friends, please tell if you dont get something
+LOTS OF TYPOS WHEN WITH FRIENDS . PLZ ASK IF YOU DONT GET SOMETHING.
 
-i talk spanish and english. im latino :3
+IM LATINO. MIGHT BE BAD WITH ENGLISH.
 
-severely mentally ill, it WILL affect how i act, think and see things. if you cant handle it, just leave :(
+BPD AND DEPRESSION . PLS IWC ALWAYS . WILL AFFECT HOW I ACT.
 
-i like regretevator, osc (not much shows), ^_^, vocaloid and project sekai.. i also do art :3
+REGRETEVATOR, ^_^, OSC AND VOCALOID HAVE MY HEART <3
 
-im a minor hehh. dont be too weird. Wont tell age unless very close.
+MINOR . ADULTS R ALLOWED IF NOT WEIRD . : )
 
-^ also wont tell my dsicord or other socials if i don't see you as a friend.
+SOCIALS ARE FOR FRIENDS I'VE PREVIOUSLY TALKED TO. I WILL NOT SEND ANYTHING IF I DONT TRUST YOU.
 
-i might just tell more latrr if you end up talking with me .. heh.
+PERHAPS WILL ADD MORE WHEN WE TALK. BYE :)
