@@ -1,19 +1,19 @@
-HI HELLO HAI
+HEYO!
 
-IM LOVESICK OR MICHAEL.
+i'm chance, L0V3SICK or michael!
 
-#1 LOSER AND SOCIAL AWKWARD. 
+super social awkward and stupid .. sorry 
 
-LOTS OF TYPOS WHEN WITH FRIENDS . PLZ ASK IF YOU DONT GET SOMETHING.
+i oftenly makes typos with trusted people!
 
-IM LATINO. MIGHT BE BAD WITH ENGLISH.
+latino, might be stupid with english @.@
 
-BPD AND DEPRESSION . PLS IWC ALWAYS . WILL AFFECT HOW I ACT.
+bpdepressed and very mentally ill in general. a constant iwc specially when i ask for it!
 
-REGRETEVATOR, ^_^, OSC AND VOCALOID HAVE MY HEART <3
+im into forsaken, regretevator, ^_^, phighting, vocaloid n' project sekai !
 
-MINOR . ADULTS R ALLOWED IF NOT WEIRD . : )
+im a minor, adults are okay but no freaky pls.
 
-SOCIALS ARE FOR FRIENDS I'VE PREVIOUSLY TALKED TO. I WILL NOT SEND ANYTHING IF I DONT TRUST YOU.
+you can ask for my discord if previously interacted :3
 
-PERHAPS WILL ADD MORE WHEN WE TALK. BYE :)
+may add a lil' more if we are to interact. heh.
